@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sagiosimon
+- 👀 I’m interested in Web design
+- 💞️ I’m looking to collaborate on various designing projects for web
+- 📫 You can reach me on sagiobusiness@gmail.com
